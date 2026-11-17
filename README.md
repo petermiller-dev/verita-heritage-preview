@@ -1,1 +1,0 @@
-# verita-heritage-preview
